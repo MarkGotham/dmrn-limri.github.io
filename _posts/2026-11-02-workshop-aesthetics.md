@@ -10,6 +10,13 @@ Hosted by the [SAS (School of Advanced Studies) Institute of Philosophy](https:/
 
 The second themed research event of LIMRI will focus on Music and Aesthetics in collaboration with the Institute of Philosophy and the Centre for the Study of the Senses. The workshop brings together scholars and practitioners from a range of disciplines to facilitate discussion on changing notions of aesthetics and the beautiful. The advent of generative music AI brings urgency as well as new insight to these centuries old debates. The workshop will include short presentations, a concert of joint improvisation between human pianist and an AI-inspired system, a panel discussion. Attendees will also have an opportunity to contribute to a pilot study on aesthetic evaluation of music co-created with AI.
 
+**Register** [here](https://www.eventbrite.co.uk/e/limri-workshop-2-interdisciplinary-conversations-on-aesthetics-tickets-2002824121863?aff=oddtdtcreator&keep_tld=true
+) (Eventbrite link). 
+
+Registration is free. <ins>Capacity is limited so please only book if you’re coming.</ins> In case of issues, priority will be given to London-affiliated colleagues and students. 
+
+**New! Join** the JISCMail LIMRI mailing list [here](https://www.jiscmail.ac.uk/LIMRI).
+
 **Invited speakers**
 * [Jennifer Walshe](https://milker.org/jenniferwalshebiography) (University of Oxford)
 * [Amnon Wolman](https://www.amnonwolman.org/about) (Jerusalem Academy of Music and Dance)
